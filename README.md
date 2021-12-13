@@ -22,6 +22,6 @@
 
 Apaixonado por tecnologia!
 
-## Contado:
+## Contato:
  - E-mail: diossantos@hotmail.com
 
